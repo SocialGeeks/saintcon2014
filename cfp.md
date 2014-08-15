@@ -31,3 +31,21 @@ In this presentation, I will talk about my experience working with those local s
 
 Geek power!
 
+## Presenter availability  
+
+Willing to repeat. I would like to present on Tuesday after the kids have had a chance to mingle, but before I'm completely brain dead from lack of sleep.  With that said I'm flexible and if you think another time would be better, I am just happy to be part of what you are doing.  
+
+## Presentation duration   
+20 minutes or 40 minutes  
+
+## Presentation focus  
+Other: Community building  
+
+## Presentation audience  
+All of the above  
+Beginner  
+
+## Equipment  
+Projector  
+
+
